@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @HoDacQuangMinh
 - 👀 I’m interested in football/soccer
 - 🌱 I’m currently learning NONE4263
-- 💞️ I’m looking to collaborate on no one :(
 - 📫 How to reach me through facebook: Quang Minh
 
 <!---
