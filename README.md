@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @HoDacQuangMinh
-- 👀 I’m interested in football/soccer
-- 🌱 I’m currently learning NONE4263
+- 👀 I’m interested in football/soccer and videogames
+- 🌱 I’m currently learning BP162
 - 📫  Contact me through Outlook: s3893444@rmit.edu.vn
 - RMIT University
 <!---
